@@ -1,17 +1,1 @@
-aradığın herşey burda
-
-
-
-😝esnaflar için
-
-
-
-😛çocuklar için
-
-
-
-😜youtuberlar için
-
-
-
-🕶hacker'lar için
+ben kerem yaşım 12 kodlamayla uğraşıyorum😃
